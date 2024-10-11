@@ -1,0 +1,3 @@
+Di sebuah hutan yang rindang, hiduplah seekor kancil yang cerdik dan lincah. Setiap hari, ia berkeliling mencari makanan, berlari-lari di antara pepohonan besar dan semak belukar. Walaupun tubuhnya kecil, kecerdikan Kancil membuatnya dihormati oleh hewan-hewan lain di hutan. Namun, tidak semua hewan menyukai Kancil, terutama mereka yang pernah tertipu oleh akalnya yang pintar.
+
+Pada suatu hari, saat Kancil sedang berjalan-jalan di tepi sungai, ia mendengar suara gemuruh air dan melihat sungai mulai meluap. "Wah, sepertinya ini akan menjadi hari yang menantang," pikirnya. Tanpa disadari, Kancil akan segera menghadapi petualangan yang luar biasa.
